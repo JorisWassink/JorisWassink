@@ -1,0 +1,4 @@
+- Hi, I’m Joris Wassink
+- I'm learning Unity at my study CMGT 
+- My email is JorisWassink@hotmail.com
+- My pronouns are he/him
