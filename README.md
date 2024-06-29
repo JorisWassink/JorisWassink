@@ -2,3 +2,4 @@
 - I'm learning Unity at my study CMGT 
 - My email is JorisWassink@hotmail.com
 - My pronouns are he/him
+- Check my other accounts at my linktree: https://linktr.ee/joriswassink
